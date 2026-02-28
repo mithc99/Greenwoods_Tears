@@ -5,4 +5,4 @@ Greenwood’s Tears
 
 In his wanderings through the Far North, an elvish rogue, Arwen, encounters a girl from his former people. He makes an unforeseen return to Greenwood, but around the same, turmoil threatens to shatter the quiet of the High Elves.
 
-**(Novice level, 3 scenarios of 8 completed.)**
+**(Novice level, 4 scenarios of 8 completed.)**
